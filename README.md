@@ -1,2 +1,0 @@
-# checkintile.com
-checkintile.com
